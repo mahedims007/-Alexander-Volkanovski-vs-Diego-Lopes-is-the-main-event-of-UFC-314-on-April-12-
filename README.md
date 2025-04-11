@@ -4,8 +4,16 @@ This is for the vacant UFC featherweight title after Ilia Topuria vacated to go 
 Alexander Volkanovski's Story
 Record and Recent Form: Volkanovski (26-4) is a former UFC featherweight champion, having held the title for more than four years, with five successful defenses. But he’s exiting back-to-back knockout loses — losing to Islam Makhachev in October 2024 at lightweight, and Ilia Topuria in February 2024 at featherweight. It will be his first fight in more than a year after recovering from a 14-month layoff.
 Motivation: At 36 years of age, Volkanovski has admitted this could be his final opportunity at ever getting a title back. He is playing as an “Old Man Volk,” a persona he has adopted with a desire to show that he still can perform at an elite level. And he maintains confidence that he can outlast younger rivals with experience and tactical smarts.
-Diego Lopes' Rise
+Diego Lopes' Rise [[Reddit]]
 Recent Record and Momentum: Lopes (26-6) is on a five-fight winning streak, with wins over Dan Ige and Brian Ortega among others. Lopes has burst onto the featherweight scene and is known for his aggressive style and knockout power after making his way into the UFC within the past two years.
+
+
+💻Best Live Streams for PC/MAC  
+🔴[SiteVisit](https://tinyurl.com/GithubUFC)
+
+📲Mobile  Friendly
+🔴[SiteVisit](https://tinyurl.com/GithubUFC)
+
 Fighting Style: Lopes is an extraordinarily dangerous fighter with high output, elite jiu-jitsu, and explosive striking. Yet questions about his cardio have persisted, even if he showed signs of improvement in his last couple of outings.
 Keys to Victory
 For Volkanovski: According to experts, Volkanovski's key to victory lies in his footwork and tactical approach that tire Lopes out on the ground. Avoiding these early exchanges will be key, with Lopes at his most dangerous in those flurries, as Volkanovski's durability will come under scrutiny after a pair of knockout defeats in recent fights.
